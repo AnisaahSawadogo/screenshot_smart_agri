@@ -1,0 +1,10 @@
+Screenshot
+https://github.com/AnisaahSawadogo/screenshot_smart_agri/blob/2ff4a38fc443956986fa240265e6195ab3a089c4/Capture%20d'%C3%A9cran%202025-02-26%20112427.png
+https://github.com/AnisaahSawadogo/screenshot_smart_agri/blob/2ff4a38fc443956986fa240265e6195ab3a089c4/Capture%20d'%C3%A9cran%202025-02-26%20160550.png
+https://github.com/AnisaahSawadogo/screenshot_smart_agri/blob/2ff4a38fc443956986fa240265e6195ab3a089c4/Capture%20d'%C3%A9cran%202025-02-26%20160614.png
+https://github.com/AnisaahSawadogo/screenshot_smart_agri/blob/318a7755936b96f8367ef59915d48c1ad4f9cab5/Capture%20d'%C3%A9cran%202025-02-26%20161725.png
+https://github.com/AnisaahSawadogo/screenshot_smart_agri/blob/318a7755936b96f8367ef59915d48c1ad4f9cab5/Capture%20d'%C3%A9cran%202025-02-26%20161826.png
+https://github.com/AnisaahSawadogo/screenshot_smart_agri/blob/318a7755936b96f8367ef59915d48c1ad4f9cab5/Capture%20d'%C3%A9cran%202025-02-26%20161841.png
+https://github.com/AnisaahSawadogo/screenshot_smart_agri/blob/318a7755936b96f8367ef59915d48c1ad4f9cab5/Capture%20d'%C3%A9cran%202025-02-26%20161853.png
+https://github.com/AnisaahSawadogo/screenshot_smart_agri/blob/318a7755936b96f8367ef59915d48c1ad4f9cab5/Capture%20d'%C3%A9cran%202025-02-26%20161907.png
+https://github.com/AnisaahSawadogo/screenshot_smart_agri/blob/318a7755936b96f8367ef59915d48c1ad4f9cab5/Capture%20d'%C3%A9cran%202025-02-26%20161922.png
